@@ -4,5 +4,5 @@
 - 💞️ I’m looking to collaborate on ... how to utilize github to advance my learning on a text book im currently studing
 - 📫 How to reach me ... im trying to utilize github to communicate back and forth if possible
 - 😄 Pronouns: ... n/a
-- ⚡ Fun fact: ... im just too optimistic and open to all philosiphies an theories that im not a solid believer in any one issue
+- ⚡ Fun fact: ... 
 - 
